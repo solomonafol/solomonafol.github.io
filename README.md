@@ -1,1 +1,0 @@
-# solomonafol.github.io
